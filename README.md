@@ -1,0 +1,1 @@
+# Analiza_parametrow_wiatru
